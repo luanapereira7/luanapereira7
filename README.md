@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on com a minha formação academica para ter uma boa colocação profissional
 - 📫 How to reach me meus contatos estao na bio
 - 😄 Pronouns: ... lua
-- ⚡ Fun fact: ... perfecsionista
+- ⚡ Fun fact: ...
 
 <!---
 luanapereira7/luanapereira7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
